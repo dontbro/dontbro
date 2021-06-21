@@ -1,1 +1,1 @@
-French Devops/Big data consultant
+Devops/Big data consultant
